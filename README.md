@@ -1,6 +1,4 @@
-Hi there 👋
-
-👋 Hi there, I'm Mitchell Omorotionmwan.
+Hi there, I'm Mitchell Omorotionmwan.
 
 Summary
 
